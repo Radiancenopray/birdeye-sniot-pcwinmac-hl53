@@ -1,4 +1,4 @@
-# 
+# Top birdeye sniper bot plugins para Mac OS | Melhor birdeye sniper bot plugins para PC Windows. Com manipulação de nonce e análise de mercado — otimizado para máximo desempeño en cada plataforma.
 
 
 
